@@ -7,4 +7,4 @@ My Master's degree in Business Administration, with a Human Resources concentrat
 
 Now, I aim to expand my skills and knowledge by accepting positions that will let me use my analytical and recruiting abilities. Building solid, competent teams that promote innovation and business growth is how I hope to help forward-thinking companies succeed.
 
-[My LinkedIn Profile](www.linkedin.com/in/soham-samanta-3b50a139)
+[My LinkedIn Profile](https://www.linkedin.com/in/soham-samanta-3b50a139)
