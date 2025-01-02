@@ -84,8 +84,20 @@ Onboarding:
 * [Onboarding Checklist](https://docs.google.com/document/d/1uWDF-bK35VbPPHEhhPh5fsbMYOwb0Kez/edit?usp=drive_link&ouid=111857743893046045522&rtpof=true&sd=true)
 
 Communication and Reminders:
+
 * [Communications and Reminders](https://docs.google.com/document/d/1jA44a1pTLR9ftDbp5cpOCUE4SNCikLXY/edit?usp=drive_link&ouid=111857743893046045522&rtpof=true&sd=true)
 
 Process Feedbacks:
+
 * [Hiring Process Feedback](https://docs.google.com/document/d/1VN1r4xM-tCpp43WsO2pDNAnPX6pF_AAw/edit?usp=drive_link&ouid=111857743893046045522&rtpof=true&sd=true)
 * [Training Satisfaction](https://docs.google.com/document/d/1uEBJzQrFPdqSvY_hATxVmg4pcf6UryUm/edit?usp=drive_link&ouid=111857743893046045522&rtpof=true&sd=true)
+
+# My Readings
+* [Recruiting Hacks](https://www.smartrecruiters.com/blog/category/recruiting-hacks/)
+* [Recruiting Blog](https://www.greenhouse.com/blog)
+* [Social Talent](https://www.socialtalent.com/blog)
+* [Career Plug](https://www.careerplug.com/blog/)
+
+# My Groups
+* [HR Family in Canada](https://www.linkedin.com/groups/10484036/)
+* [CPHR BC & Yukon](https://www.linkedin.com/groups/71802/)
