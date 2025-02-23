@@ -1,6 +1,7 @@
 Welcome to My World of Talent & Transformation!
 
 Hi, I'm Soham Samanta 👋
+
 | Talent Acquisition Specialist | Talent Pipeline Builder | Recruitment Strategist | Workforce Planning Expert | 
 
 I'm a dynamic professional with a passion for Talent Acquisition, Recruitment Strategy, Workforce Planning, and Process Optimization. With experience spanning E-commerce, Railways, and HR Operations, I thrive on driving efficiency, enhancing hiring experiences, and fostering impactful connections. From streamlining hiring workflows with ATS systems to implementing strategic recruitment initiatives, I bring data-driven insights and a people-first approach to every project.
