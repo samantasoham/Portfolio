@@ -2,7 +2,7 @@
 
 About me 👋
 
-I am a realist with a special combination of skills that characterize my work style. My background in many aspects of human resources has, on one hand, made me a well-structured, methodical, and meticulous person. While on the other, it honeed my skills in building systems, overseeing procedures, and making sure all facets of my work are in line with requirements and organizational goals. By nature, I am motivated to assist others in finding the right opportunities and build connections that are advantageous. By combining analytical accuracy with a human-centered approach, enables me to make some impact.
+I offer a unique set of skillsets that characterize my work style. My background in different facets of human resources has, on one hand, made me a well-structured, methodical, and meticulous person. While on the other, it honeed my skills in building systems, overseeing procedures, and making sure all area of my work are in line with requirements and organizational goals. By nature, I am motivated to assist others in finding the right opportunities and build connections that are advantageous. By combining analytical accuracy with a human-centered approach, enables me to make some impact.
 
 My Master's degree in Business Administration, with a Human Resources concentration, has given me an understanding Human Resources management. My abilities as talent acquisition has improved over the years, and now, I have practical expertise in locating, attracting, and acquiring talent. I'm excited about using these abilities to close the gap between candidates' goals and an organization's requirements, guaranteeing best suitable match for both sides.
 
