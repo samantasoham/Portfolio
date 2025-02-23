@@ -1,12 +1,11 @@
-# Portfolio
+Welcome to My World of Talent & Transformation!
 
-About me 👋
+Hi, I'm Soham Samanta 👋
+| Talent Acquisition Specialist | Talent Pipeline Builder | Recruitment Strategist | Workforce Planning Expert | 
 
-I offer a unique set of skillsets that characterize my work style. My background in different facets of human resources has, on one hand, made me a well-structured, methodical, and meticulous person. While on the other, it honeed my skills in building systems, overseeing procedures, and making sure all area of my work are in line with requirements and organizational goals. By nature, I am motivated to assist others in finding the right opportunities and build connections that are advantageous. By combining analytical accuracy with a human-centered approach, enables me to make some impact.
+I'm a dynamic professional with a passion for Talent Acquisition, Recruitment Strategy, Workforce Planning, and Process Optimization. With experience spanning E-commerce, Railways, and HR Operations, I thrive on driving efficiency, enhancing hiring experiences, and fostering impactful connections. From streamlining hiring workflows with ATS systems to implementing strategic recruitment initiatives, I bring data-driven insights and a people-first approach to every project.
 
-My Master's degree in Business Administration, with a Human Resources concentration, has given me an understanding Human Resources management. My abilities as talent acquisition has improved over the years, and now, I have practical expertise in locating, attracting, and acquiring talent. I'm excited about using these abilities to close the gap between candidates' goals and an organization's requirements, guaranteeing best suitable match for both sides.
-
-Now, I aim to expand my skills and knowledge by accepting positions that will let me use my analytical and recruiting abilities. Building solid, competent teams that supports innovation and business growth, is how I hope to help organizations succeed.
+Efficiency fuels my work, but creativity drives my spirit. When I'm not optimizing processes, I'm exploring new ideas, staying ahead of industry trends, and embracing challenges that push me forward. Join me on a journey where talent meets transformation, and every connection builds a stronger future.
 
 # Skills
 
